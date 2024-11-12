@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Cnichter
+- 👀 I’m interested in -
+- 🌱 I’m currently learning - java 
+- 📫 How to reach me - nichtercooper@gmail.com
+- ⚡ Fun fact: ...
